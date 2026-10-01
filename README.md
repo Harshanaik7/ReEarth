@@ -10,3 +10,9 @@ Hardik V Adagooru
 Vivek Biradar 
 <br>
 Hariom Mohite 
+# Fick Dish
+Master Harsha Naik
+# Rules to be followed in Harsha Naik'S Kingdom
+1.All are Equal
+2.helpful to each other
+
